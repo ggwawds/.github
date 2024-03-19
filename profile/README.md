@@ -2,7 +2,7 @@
 
 **คลิกที่นี่ :[ก๊อตซิล่าปะทะคอง 2 อาณาจักรใหม่ Godzilla x Kong: The New Empire 2024](https://godzilla-x-kong-the-new-empire-th-sub.blogspot.com)**
 
-**Sub English : [https://godzilla-x-kong-the-new-empire-th-sub.blogspot.com]9https://godzilla-x-kong-the-new-empire-th-sub.blogspot.com)**
+**Sub English : [https://godzilla-x-kong-the-new-empire-th-sub.blogspot.com](https://godzilla-x-kong-the-new-empire-th-sub.blogspot.com)**
 
 ดู ก๊อตซิล่าปะทะคอง 2 อาณาจักรใหม่ เต็มเรื่อง (2024) ดูหนังออนไลน์ ซับไทย | ดูหนัง ก๊อตซิล่าปะทะคอง 2 อาณาจักรใหม่ เต็มเรื่อง ออนไลน์ฟรี [HD] พากย์ไทย ดูหนังออนไลน์ (2024) ก๊อตซิล่าปะทะคอง 2 อาณาจักรใหม่ มาสเตอร์ HD หนังชัด ดูฟรี เต็มเรื่อง ดูหนัง ก๊อตซิล่าปะทะคอง 2 อาณาจักรใหม่ (2024) พากย์ไทย เต็มเรื่อง Full HD
 
